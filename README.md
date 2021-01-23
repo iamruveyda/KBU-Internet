@@ -14,6 +14,7 @@
 ## Instructors
 
  [Prof.Dr. İsmail Rakıp KARAŞ](https://muh.karabuk.edu.tr/?page=detail&no=21)
+ 
  [Res.Asst. İdris KAHRAMAN](https://muh.karabuk.edu.tr/?page=detail&no=66)
 
   
